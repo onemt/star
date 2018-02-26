@@ -1,0 +1,2 @@
+# star
+nothing to lose
